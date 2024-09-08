@@ -1,0 +1,3 @@
+- Sensing Bats
+	- https://www.digikey.com/en/products/detail/knowles/SPU0410LR5H-QB/2420974
+	- https://www.sdrplay.com/blog/

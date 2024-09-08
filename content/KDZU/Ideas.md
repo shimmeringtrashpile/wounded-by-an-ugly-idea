@@ -1,0 +1,13 @@
+- Emballage Cassette Tapes See /Users/rob/Dropbox/KDZU/assets/emballage.png
+- Buttons
+- Silk Screening
+- Embroidered patches for Future Ghost and KDZU.
+- Embroidered USB tags.
+- Try the magic arm with the EMF microphone
+- Add zine, making two DJ mixes.
+- Wood carving accessories for MAL objects
+- Build https://astro.build site.
+- make OMSA flyers and post on campus?
+- This plant has worked _ DAYS without a lost time accident. https://www.compliancesigns.com/pd/days-without-lost-time-accident-plant-sign-nhe-8510-industrial-notices
+- 
+
